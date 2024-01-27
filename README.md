@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @mohammadhdp23 - سلام من محمد حسین دانش پژوه هستم
 - 👀 I’m interested in CE+CS
 - 🌱 I’m currently learning Go && Python
-- 📫 How to reach me ...IG: mohammadhdp23 - Telegram: @mohohdp2000 || @Mhdp23 - Gmail: mohammadhdp91@gmail.com
+- 📫 How to reach me ...IG: mohammadhdp23 - Telegram: @mohohdp3000 || @Mhdp23 - Gmail: mohammadhdp91@gmail.com
